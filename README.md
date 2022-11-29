@@ -15,6 +15,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-🌈 https://www.youtube.com/channel/@hammuu 🌈
+🌈 https://www.youtube.com/@hammuu 🌈
 
 🌟 https://www.twitch.tv/hammuu1112 🌟
